@@ -1,4 +1,4 @@
-### Informatics Engineering UHO👋
+### Informatics Engineering UHO
 #### Kendari
 
 <!--
